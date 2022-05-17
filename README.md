@@ -1,0 +1,1 @@
+So i'm suppose to demonestrate my skills from bout a week of learning webdev, i've learned barely anyting imo. I learned about basic html stuffI learned how to push stuff and shit. Idk still learning though
